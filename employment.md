@@ -19,9 +19,12 @@ Payment for the work you do with Us is described in the Employee Handbook.
 7. This Agreement and any dispute or claim arising from it, in connection with it or its subject matter or formation (which includes any non contractual disputes or claims) shall be  governed and construed in accordance with English Law. 
 
 The signatories below agree to the terms above:
+
+
 You:
 Signed: ................................................. 
 Date: ..... / ..... / ...........  
+
 
 {name of director}, a Director of RiverGlide Limited, on behalf of Us: 
 Signed: ................................................. 
