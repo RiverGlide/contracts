@@ -14,8 +14,8 @@ Payment for the work you do with Us is described in the Employee Handbook.
 4. You are entitled to receive sick pay at a minimum of the current statutory rate. See the Employee Handbook for information about additional sick pay. 
 5. The grievance, dismissal and disciplinary policy is explained in the Employee Handbook. 
 6. This contract can be brought to an end by either You or Us with the following period of advanced notice:
-  6.1 one week if you have worked with us for up to one year; or
-  6.2 a number of weeks equal to the number of whole years you have worked with us, up to a maximum of twelve weeks.
+6.1 one week if you have worked with us for up to one year; or
+6.2 a number of weeks equal to the number of whole years you have worked with us, up to a maximum of twelve weeks.
 7. This Agreement and any dispute or claim arising from it, in connection with it or its subject matter or formation (which includes any non contractual disputes or claims) shall be  governed and construed in accordance with English Law. 
 
 The signatories below agree to the terms above:
